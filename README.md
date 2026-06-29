@@ -2109,7 +2109,7 @@ Share it with a friend. Star it. Use it as a reference. And most importantly —
 
 ---
 
-**Author:** [Your Name Here]
+**Author:** [B0GYMAN]
 
 **Last Updated:** 29 June 2026
 
